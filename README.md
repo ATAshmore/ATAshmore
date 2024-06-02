@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **alexandertashmore@gmail.com**
 
-- ⚡ Fun fact **chicken butt**
+- ⚡ Fun fact **I like to dabble in art**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
